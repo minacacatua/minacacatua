@@ -1,7 +1,5 @@
-## Welcome at my little perfil 🍒 🌸 🌠
+## Welcome at my little profile! 🍒🌸🌠 ❗
 
-
-**minacacatua/minacacatua** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 - 😄 Pronouns: **He or she, i don't care** ♀️ ♂️
 - ⚡ Fun fact: **I'm a pokemon nerd** 🤓 ✍️
 - 🏺 My name is Carmina, but you can call me Carmen! 😙 🍏
